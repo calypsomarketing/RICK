@@ -1,0 +1,2 @@
+# RICK
+GitHub Pages
